@@ -1,0 +1,1 @@
+This program is only on Mac it you can open it then hold option key and right click on on app and press open 
